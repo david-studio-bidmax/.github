@@ -23,6 +23,4 @@ I review every request personally and respond as soon as possible.
 
 *© David Khachatryan — All rights reserved.*
 
-**[📧 Email](mailto:davidkhachatryan359@gmail.com) · [💼 LinkedIn](https://www.linkedin.com/in/david-khachatr1an/)**
-
 </div>
